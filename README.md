@@ -1,5 +1,5 @@
 - 👋 oi,eu sou Kauane.
 - 👀 Estou interessada em academia.
 - 🌱 atualmente estou aprendendo pensamento computacional.
-- 💞️ Precuro colaborar na aula.
+- 💞️ Procuro colaborar na aula.
 - 📫 por instagram ou e-mail.
